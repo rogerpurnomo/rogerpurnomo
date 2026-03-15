@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **rogerpurnomo@gmail.com**
 
-- ⚡ Fun fact **I like to communicate with new people, interested in their thoughts and vision for the better world**
+- ⚡ Fun fact **I'm a WEB3 enthusiast and love to communicate with new people, interested in their thoughts and vision for the better world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
